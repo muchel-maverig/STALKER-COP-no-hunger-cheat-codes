@@ -1,0 +1,1 @@
+# STALKER-COP-no-hunger-cheat-codes
